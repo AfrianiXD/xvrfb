@@ -17,4 +17,3 @@
      
 
  ```This Tools is Free Enjoy ```</br>
- [![Whatsapp](https://img.shields.io/badge/Whatsapp-ApriliaXD-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+6287889853946)
